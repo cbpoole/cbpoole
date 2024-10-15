@@ -1,10 +1,6 @@
 👋 Hi, I’m @cbpoole
 - 👀 I’m interested in...
-   
-- 😄 Pronouns:
-    - Seriously.
-    - Respect; US2
-        - *Hurricanes will be illegal sooner than later y'all*. 
+
 
 
 <!---
